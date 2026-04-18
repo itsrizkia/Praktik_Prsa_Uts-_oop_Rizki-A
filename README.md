@@ -1,1 +1,1 @@
-# Praktik_Prsa_Uts-_oop_Rizki-A
+# Praktik_Pra_Uts-_oop_Rizki-A
